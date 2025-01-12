@@ -38,9 +38,8 @@ Sou Desenvolvedor apaixonado por tecnologia, formado em Análise e Desenvolvimen
 
 ## 📫 Entre em Contato
 
-- 📧 E-mail: [luizfdasilva99@gmail.com](mailto:luizfdasilva99@gmail.com) 
-- 💼 LinkedIn: [linkedin.com/in/seu-perfil](https://linkedin.com/in/seu-perfil)  
-
+- 📧 E-mail: [luizfdasilva99@gmail.com](mailto:luizfdasilva99@gmail.com)  
+- 💼 LinkedIn: [Felipe Silva](https://www.linkedin.com/in/felipe-silva-a26780213/)  
 
 ---
 
